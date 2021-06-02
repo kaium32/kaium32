@@ -1,4 +1,4 @@
-[![MasterHead](https://lh3.googleusercontent.com/lO5tGvhAOJ0q_dJLnHCaPmYyCoznDjKN2SOhCLds8ksydl6L4pD0fATQVaZjB77P4vze1M0xVDSJzoEkPn5RjdE2TPCNfoNh6FVQ3xkSfqopI50xINhxR5OMyWAHwUisYRcfN9hgUWUT1YX0Wsqb7jl9SQut930E6BjtI58T3jmhap73eAxFRBE2NCi8bHsWfJEKND3x0LuIKYw46gedYwJ6XZI-JZs0Ov6tSfe27l-Kf1CukkTzMQbqhf8nbVHwihSEImPLM3tz7_0n7ISza_kljQfiwGai3PHgVTmIP_f-GBxaQ81CIrXnNKvYbMEGM_jpIJb3cqORgqXoNkTrhG57EeY-ZlRTbM_i_1vwBAdUmR8b2ff-m7deYTOySPlr5fpL6qbsxJFlBD8qDpwlgQyaw7PVZvEwIV3E0JqRL3ZDZlF2TcR_GoNJH9ZaJ3cdGdB2XL5NaEZ0jPenW70RWuYOMbP73nGwn3PS2Wh6183hKyZ_i8gF6NY_o-OwKegIfywYv3P_2ZhuitaQhK4PBLzL7dZFSsPb_vr7hvzwoeg4hX44R9mqRCxdZ_EhceZVi571b_sRolARO_FO8BZ0LtfhOSqaJE_FBDkmIcyysR4Whe-4GLNSpm-Z8DajrxlDUPK_RF0ijdgPJEfyIDNZk3w3cWn_-yEBiAbHgAvO3DAPKwlzjq1SrnXSTLpu5TAn8la0idfar6hoiVNJFjir2a_F=w1342-h625-no?authuser=0)](https://rb.gy/q9n4zp)
+[![MasterHead](https://github.com/kaium32/kaium32/blob/main/information.png)](https://rb.gy/q9n4zp)
 <h1 align="center">Hi 😎, I'm Asraful Quyum</h1>
 <h3 align="center">A Boy Who achieve high carrier growth through a continuous learning process and keep myself dynamic, visionary and competitive with the changing scenario of the world.</h3>
 
